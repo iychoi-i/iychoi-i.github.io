@@ -1,1 +1,0 @@
-# iychoi-i.github.io
